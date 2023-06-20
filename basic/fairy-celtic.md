@@ -1,0 +1,17 @@
+Fairies, the captivating figures woven into Celtic folklore, are found across every Celtic land, including Ireland, Scotland, Wales, Cornwall, the Isle of Man, and Brittany. These folkloric beings have evolved as part of the Celtic mythos, spanning different regions and cultures, and yet maintaining intriguing similarities.
+
+A prevalent theory posits that fairies are an evolutionary cousin to humans, a parallel species that arose and flourished alongside us in the ancient past. This theory, while contentious, grants fairies a distinct ecological niche, granting them a physical presence in our world rather than relegating them to spiritual or ethereal realms.
+
+Meanwhile, other theories see fairies as residual versions of ancient gods, both Celtic and pre-Celtic, whose influence remained vivid in people's minds even after their displacement by subsequent religious beliefs. In this perspective, fairies are either the lingering memory of indigenous peoples replaced by later immigrants or perhaps elemental spirits of nature, intimately connected to the landscapes they inhabit. In Celtic lore, fairies sometimes appear indistinguishable from the dead, implying an ancient blurring of boundaries between life, death, and the fairy realm.
+
+Many fairies were believed to reside in magnificent fairy cities, their lives a constant whirl of dancing and feasting. When they traveled, they did so en masse, their movements causing great gusts of wind known as fairy blasts. Those they favored during these encounters were often whisked away, leading to age-old warnings about walking near fairy mounds and other liminal places at night.
+
+Other fairies were solitary in nature. These included the industrious leprechaun, the tippling cluricaune, the helpful brownie, and the bucca. Solitary fairies often busied themselves with various crafts and industries, assisting humans unless treated with ungratefulness or excess. Yet, there were more ominous solitaries such as the banshee and the fairy lover, whose encounters could lead to death or disappearance.
+
+These Celtic fairies were typically small and red-haired, their exquisite beauty marked by a radiant complexion that glowed with an ethereal delight, even when green. They were perceived as immortal, their time vastly different from ours, lending to their mythos a sense of timelessness and unending youth.
+
+Fairies were reputed to have their unique code of morality and behavior. They demanded respect for their privacy, cherished neatness, and punished those who violated these rules. Despite this, they were known for their amorality, stealing from our world without a second thought, yet refusing to tolerate theft from their own. They were creatures both respected and feared, often spoken of in euphemisms such as The Gentry or The Good Neighbors to avoid their ire.
+
+The term "fairy" isn't of Celtic origin but derived from the Roman 'fatae', the powers or goddesses of fate, through the French 'faerie'. The term evolved, came to mean being under the power of the fays, and has been used to refer to otherworldly beings such as elves, ghosts, and diminished goddesses.
+
+In essence, the Celtic fairies are a testament to the depth and richness of Celtic folklore, a blend of ancient religion, shared cultural memory, and an age-old respect and fear of nature's untamed elements. Their stories continue to captivate us, offering a window into our ancestors' worldview and the enduring power of mythology.
