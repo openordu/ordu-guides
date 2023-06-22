@@ -336,6 +336,7 @@
          6. Explain how geese were used for divination and only consumed during ritual occasions in Celtic culture.
          7. Discuss the belief that some fairy beings and the waterbird-hero Geroid Iarla could shape-shift into geese.
        * Hare
+         1. 
        * Horse
        * Mouse
        * Otter
@@ -598,16 +599,16 @@
         1. Dagda
         2. Brighid
         3. Anu-Beara
-        5. Aengus
-        6. Macha-Grian
-        7. Badb-Nic Nevin
-        8. Donn
-        9. The Mac Lir / Fintan
-        10. Boand
-        11. Nuadu
-        12. Lugh
-        13. Ogma
-        14. Eremon
+        4. Aengus
+        5. Macha-Grian
+        6. Badb-Nic Nevin
+        7. Donn
+        8. The Mac Lir / Fintan
+        9.  Boand
+        10. Nuadu
+        11. Lugh
+        12. Ogma
+        13. Eremon
 7.  Celtic Cosmology and Philosophy
      1. Lesson 1: Worldview and Spirituality
          * stuff
